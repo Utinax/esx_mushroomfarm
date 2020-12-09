@@ -2,4 +2,4 @@
 
 Script benim yapımım değildir, yalnızca optimizasyon ve Türkçeleştirme çalışması yaptım.
 
-Video: 
+Video: https://streamable.com/tjdgyk
